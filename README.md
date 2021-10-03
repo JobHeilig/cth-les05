@@ -1,1 +1,1 @@
-#Hallo groeten uit uit Amsterdam
+#Hallo groeten uit Amsterdam
